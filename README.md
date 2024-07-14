@@ -1,4 +1,4 @@
-# Trent Sherrell's Portfolio
+# Trent Sherrell's Supplemental Portfolio
 
 ## Hi there 👋
 
